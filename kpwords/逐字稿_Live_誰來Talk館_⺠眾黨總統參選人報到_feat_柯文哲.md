@@ -1,5 +1,8 @@
 # [逐字稿] Live【誰來Talk館】⺠眾黨總統參選人報到 | feat. 柯文哲
 
+[![hackmd-github-sync-badge](https://hackmd.io/sKhoXDgrRhWygtL6Cm0P1w/badge)](https://hackmd.io/sKhoXDgrRhWygtL6Cm0P1w)
+
+
 ###### tags: `柯文哲` `柯P` `館長` `募款` `蔣萬安` `悠遊卡興櫃案` `MeToo` `王世堅` `美國` `日本` `專一的男人` `公開透明` `釣魚台` `CPTPP` `台積電` `黃國昌` `國防` `中國` `排黑條款` `副總統` `司法改革` `居住正義`
 
 {%youtube iZFtaebPQ4E %}
