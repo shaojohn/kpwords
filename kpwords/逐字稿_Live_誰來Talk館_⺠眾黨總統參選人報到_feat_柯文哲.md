@@ -7,7 +7,7 @@
 
 {%youtube iZFtaebPQ4E %}
 
-參考來源：柯文哲 Youtube 頻道， https://www.youtube.com/watch?v=iZFtaebPQ4E
+參考來源：館長惡名昭彰 Youtube 頻道， https://www.youtube.com/watch?v=iZFtaebPQ4E
 
 ## 逐字稿
 
