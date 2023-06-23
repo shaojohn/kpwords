@@ -1,5 +1,8 @@
 # [逐字稿] 面對晶片與科學法，柯P告訴你，你不可不知的這件事！
 
+[![hackmd-github-sync-badge](https://hackmd.io/ejyM-n5cQ6Cbp4QejsaG7Q/badge)](https://hackmd.io/ejyM-n5cQ6Cbp4QejsaG7Q)
+
+
 ###### tags: `柯文哲` `柯P` `資通訊` `人工智慧` `安全` `晶片同盟` `少子化` `台積電` `半球供應鏈`
 
 ## 影片
