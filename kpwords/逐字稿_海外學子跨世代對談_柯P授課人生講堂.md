@@ -1,5 +1,8 @@
 # [逐字稿] 海外學子跨世代對談，柯P授課人生講堂【自由台灣｜對話之旅】
 
+[![hackmd-github-sync-badge](https://hackmd.io/iq9rQcSJTgK5twBx2TaGxg/badge)](https://hackmd.io/iq9rQcSJTgK5twBx2TaGxg)
+
+
 ###### tags: `柯文哲` `柯P` `抹紅` `熱情` `勇氣` `謙卑` `智慧` `亞斯伯格症` `外科醫生` `僑民` `台灣` `舉手之勞` `亞當史密斯` `Minnesota` `誠實` `歸國` `維持現狀` `中美競爭` `宏都拉斯` `外交` `馬拉威` `金錢外交` `垃圾分類` `經濟艙`
 
 ## 影片
