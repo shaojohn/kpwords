@@ -1,5 +1,8 @@
 # [逐字稿] 台僑憂大學倒.健保垮 柯P直指政策缺長遠規劃【自由台灣｜對話之旅】
 
+[![hackmd-github-sync-badge](https://hackmd.io/7RKArChfSPGU9KO-Xzcakw/badge)](https://hackmd.io/7RKArChfSPGU9KO-Xzcakw)
+
+
 
 ###### tags: `柯文哲` `柯P` `健保` `全民健康保險法` `法治` `權力` `腐化` `教育` `流浪教師` `2050淨零碳排放` `民主` `民粹` `貪污`
 
