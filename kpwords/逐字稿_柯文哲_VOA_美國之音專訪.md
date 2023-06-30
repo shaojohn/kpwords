@@ -1,5 +1,8 @@
 # [逐字稿] 柯文哲 VOA 美國之音專訪
 
+[![hackmd-github-sync-badge](https://hackmd.io/8g1GzkOtQl--7Ohni22Adg/badge)](https://hackmd.io/8g1GzkOtQl--7Ohni22Adg)
+
+
 ###### tags: `柯文哲` `柯P` `美國之音` `美國` `中國` `蓬佩奧` `台海戰爭` `五個互相` `蔣經國模式` `國防` `網路戰` `SOP` `晨會` `普世價值`
 
 ## 影片
