@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP1.安全危機 
 
+[![hackmd-github-sync-badge](https://hackmd.io/Rh1PyuWRQgW9Je-C7uT8pQ/badge)](https://hackmd.io/Rh1PyuWRQgW9Je-C7uT8pQ)
+
+
 ###### tags: `柯文哲` `柯P` `安全危機` `智慧犯罪` `詐騙案` `健保` `2050淨零碳排` `齊頭式社會福利`
 
 ## 影片
