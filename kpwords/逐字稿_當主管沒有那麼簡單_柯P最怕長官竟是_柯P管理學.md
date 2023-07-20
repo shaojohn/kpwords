@@ -1,5 +1,8 @@
 # [逐字稿] 當主管沒有那麼簡單！柯P最怕長官竟是...｜柯P管理學【柯P老實說】 
 
+[![hackmd-github-sync-badge](https://hackmd.io/7jkjj6jbSF-SAS0vD_u4PQ/badge)](https://hackmd.io/7jkjj6jbSF-SAS0vD_u4PQ)
+
+
 ###### tags: `柯文哲` `柯P` `認真` `營運成本` `白飯理論` `產業升級` `留空白` `下命令` `鴿子理論`
 
 ## 影片
