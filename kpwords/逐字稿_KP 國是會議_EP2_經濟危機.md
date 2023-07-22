@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP2.經濟危機
 
+[![hackmd-github-sync-badge](https://hackmd.io/agODJrwMRp2eGfuYOBzF6Q/badge)](https://hackmd.io/agODJrwMRp2eGfuYOBzF6Q)
+
+
 ###### tags: `柯文哲` `柯P` `經濟危機` `人才危機` `市場危機` `投資危機` `科技危機` `教育危機`
 
 ## 影片
