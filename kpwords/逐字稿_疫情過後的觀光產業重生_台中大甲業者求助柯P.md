@@ -1,5 +1,8 @@
 # [逐字稿] 疫情過後的觀光產業重生！台中大甲業者求助柯P【柯P來了】
 
+[![hackmd-github-sync-badge](https://hackmd.io/3mIsbpeuS0STXpGGMOND1A/badge)](https://hackmd.io/3mIsbpeuS0STXpGGMOND1A)
+
+
 ###### tags: `柯文哲` `柯P` `觀光產業` `交通部` `執行力`
 
 ## 影片
