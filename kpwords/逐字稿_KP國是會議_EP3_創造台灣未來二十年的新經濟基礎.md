@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP3.創造台灣未來二十年的新經濟基礎
 
+[![hackmd-github-sync-badge](https://hackmd.io/l5I6AaVyRIubzbiT4KeSBA/badge)](https://hackmd.io/l5I6AaVyRIubzbiT4KeSBA)
+
+
 ###### tags: `柯文哲` `柯P` `人才紅利` `大融合` `中等國家陷阱` `AI` `以色列`
 
 ## 影片
