@@ -1,5 +1,8 @@
 # [逐字稿] 柯辦發言人陳智菡回應KP SHOW等時事問題
 
+[![hackmd-github-sync-badge](https://hackmd.io/eiWj4nR2TqibZDTNV7E-gg/badge)](https://hackmd.io/eiWj4nR2TqibZDTNV7E-gg)
+
+
 ###### tags: `柯文哲` `柯P` `KPShow` `側翼` `鄭知明` `尚文凱` `政治獻金`
 
 ## 影片
