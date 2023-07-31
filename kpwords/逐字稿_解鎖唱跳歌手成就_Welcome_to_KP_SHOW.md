@@ -1,5 +1,8 @@
 # [逐字稿] 解鎖唱跳歌手成就，Welcome to KP SHOW!
 
+[![hackmd-github-sync-badge](https://hackmd.io/BMwoEE9tTX6MoxIYFDXnXw/badge)](https://hackmd.io/BMwoEE9tTX6MoxIYFDXnXw)
+
+
 ###### tags: `柯文哲` `柯P` `KPshow` `個人演唱會`
 
 ## 影片
