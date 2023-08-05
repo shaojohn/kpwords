@@ -1,5 +1,8 @@
 # [逐字稿]【KP 國是會議】EP4.創造更多的高薪工作
 
+[![hackmd-github-sync-badge](https://hackmd.io/9jyNj7iWTPileeG4mUkJRg/badge)](https://hackmd.io/9jyNj7iWTPileeG4mUkJRg)
+
+
 ###### tags: `柯文哲` `柯P` `吸引國際企業來台` `鼓勵企業創新` `積極投資新創` `低薪`
 
 ## 影片
