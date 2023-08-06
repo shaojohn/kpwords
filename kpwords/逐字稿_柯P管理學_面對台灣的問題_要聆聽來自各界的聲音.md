@@ -1,5 +1,8 @@
 # [逐字稿] 面對台灣的問題，要聆聽來自各界的聲音｜柯P管理學【柯P老實說】
 
+[![hackmd-github-sync-badge](https://hackmd.io/kWt9Tf_gQQqH-gtvV7Xe5w/badge)](https://hackmd.io/kWt9Tf_gQQqH-gtvV7Xe5w)
+
+
 ###### tags: `柯文哲` `柯P` `兩岸關係` `意識形態` `大巨蛋` `居住正義`
 
 ## 影片
