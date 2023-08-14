@@ -1,5 +1,8 @@
 # [逐字稿] 【柯P來請教】用「原民想法」解決原民問題！柯文哲曝「最好解方」！
 
+[![hackmd-github-sync-badge](https://hackmd.io/vsHmKV4HTaCvi8EVdJ7ucw/badge)](https://hackmd.io/vsHmKV4HTaCvi8EVdJ7ucw)
+
+
 ###### tags: `柯文哲` `柯P` `原住民` `見面會`
 
 ## 影片
