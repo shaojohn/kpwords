@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP.6 新高等教育
 
+[![hackmd-github-sync-badge](https://hackmd.io/lorLfASaSHGldcRUU3broA/badge)](https://hackmd.io/lorLfASaSHGldcRUU3broA)
+
+
 ###### tags: `柯文哲` `柯P` `國是會議` `高等教育`
 
 ## 影片
