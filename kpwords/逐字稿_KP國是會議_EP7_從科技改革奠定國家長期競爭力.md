@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP7.從科技改革奠定國家長期競爭力
 
+[![hackmd-github-sync-badge](https://hackmd.io/bXzWSMWuRA2E_S379lRFZA/badge)](https://hackmd.io/bXzWSMWuRA2E_S379lRFZA)
+
+
 ###### tags: `柯文哲` `柯P` `國是會議` `科技改革`
 
 ## 影片
