@@ -1,5 +1,8 @@
 # [逐字稿] 柯P老實說-EP13-我們要留下什麼樣的台北給下一代-把過去十年沒人要做的事做好-遠見高峰會演講
 
+[![hackmd-github-sync-badge](https://hackmd.io/AUfklcXlRBK997mGqMpz7A/badge)](https://hackmd.io/AUfklcXlRBK997mGqMpz7A)
+
+
 ###### tags: `柯文哲` `柯P` `執行力` `共享經濟` `預算執行率` `鄰里交通改善計畫` `居住正義` `共融社會`
 
 ## 影片
