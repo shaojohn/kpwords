@@ -1,5 +1,8 @@
 # [逐字稿] 球不落地，永不放棄！黑狗兄OH9機能襪的絕地重生｜柯P來了 EP1
 
+[![hackmd-github-sync-badge](https://hackmd.io/NAP-7EvCTUWBiWYb5t8zcQ/badge)](https://hackmd.io/NAP-7EvCTUWBiWYb5t8zcQ)
+
+
 ###### tags: `柯文哲` `柯P` `襪子` `關稅` `產業升值`
 
 ## 影片
