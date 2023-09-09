@@ -1,5 +1,8 @@
 # [逐字稿] 【KP政策記者會】「代理孕母」與「安樂死」的大哉問
 
+[![hackmd-github-sync-badge](https://hackmd.io/cESVuaXQS3-7kii9bDc9jw/badge)](https://hackmd.io/cESVuaXQS3-7kii9bDc9jw)
+
+
 ###### tags: `柯文哲` `柯P` `總統政見` `代理孕母` `安樂死`
 
 ## 影片
