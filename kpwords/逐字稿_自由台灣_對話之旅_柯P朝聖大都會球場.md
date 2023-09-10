@@ -1,5 +1,8 @@
 # [逐字稿] 柯P朝聖大都會球場【自由台灣｜對話之旅】
 
+[![hackmd-github-sync-badge](https://hackmd.io/nupNgXeeRaSZ9VPFeQQAcA/badge)](https://hackmd.io/nupNgXeeRaSZ9VPFeQQAcA)
+
+
 ###### tags: `柯文哲` `柯P` `大都會球場` `棒球` `運動產業`
 
 ## 影片
