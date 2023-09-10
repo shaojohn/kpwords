@@ -1,5 +1,8 @@
 # [逐字稿] 外科醫師煉成台北市長/民眾黨主席，生死看淡，不服就自己來幹！【柯P老實說・我的人生觀】
 
+[![hackmd-github-sync-badge](https://hackmd.io/E7aXMvVcQ3Os8b9BFsRmcA/badge)](https://hackmd.io/E7aXMvVcQ3Os8b9BFsRmcA)
+
+
 ###### tags: `柯文哲` `柯P` `人生觀` `榮華富貴` `葉克膜` `ECMO` `器官移植` `心存善念` `盡力而為`
 
 ## 影片
