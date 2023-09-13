@@ -1,5 +1,8 @@
 # [逐字稿] 美國之音VOA專訪｜A free press matters 新聞自由至關重要
 
+[![hackmd-github-sync-badge](https://hackmd.io/1gtu1yvkRIGa-qw7LVDWoA/badge)](https://hackmd.io/1gtu1yvkRIGa-qw7LVDWoA)
+
+
 ###### tags: `柯文哲` `柯P` `美國之聲` `新聞自由`
 
 ## 影片
