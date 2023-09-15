@@ -1,5 +1,8 @@
 # [逐字稿] 柯P From Professor to President 用認真專業的態度，去面對台灣的每一個挑戰｜台大外科演講【柯P老實說】
 
+[![hackmd-github-sync-badge](https://hackmd.io/AFXh5YMSR4qNhAblQDlsnA/badge)](https://hackmd.io/AFXh5YMSR4qNhAblQDlsnA)
+
+
 ###### tags: `柯文哲` `柯P` `中心思想` `醫師從政`
 
 ## 影片
