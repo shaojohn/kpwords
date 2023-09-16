@@ -1,5 +1,8 @@
 # [逐字稿] 拜會德州參議員 John Whitmire｜政治就是用集體智慧尋找共識
 
+[![hackmd-github-sync-badge](https://hackmd.io/ZRwA1tBQTiGE8npPgc2tWg/badge)](https://hackmd.io/ZRwA1tBQTiGE8npPgc2tWg)
+
+
 ###### tags: `柯文哲` `柯P` `集體智慧`
 
 ## 影片
