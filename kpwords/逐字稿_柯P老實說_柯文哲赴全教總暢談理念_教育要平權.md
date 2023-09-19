@@ -1,5 +1,8 @@
 # [逐字稿] 柯文哲赴全教總暢談理念！教育要平權 打破「階級複製」｜全教總演講【柯P老實說】
 
+[![hackmd-github-sync-badge](https://hackmd.io/Du4HSuGUQ5Wj-YwstVqnZQ/badge)](https://hackmd.io/Du4HSuGUQ5Wj-YwstVqnZQ)
+
+
 ###### tags: `柯文哲` `柯P` `義務教育` `高職` `2030雙語政策` `雙語教育` `108課綱` `多元入學` `私校退場` `e化` `學費`
 
 ## 影片
