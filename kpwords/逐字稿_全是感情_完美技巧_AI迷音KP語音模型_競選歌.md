@@ -1,5 +1,8 @@
 # [逐字稿] 全是感情，完美技巧｜AI迷音KP語音模型+競選歌
 
+[![hackmd-github-sync-badge](https://hackmd.io/SDFPM986TtyfFezpZkEb6A/badge)](https://hackmd.io/SDFPM986TtyfFezpZkEb6A)
+
+
 ###### tags: `柯文哲` `柯P` `人工智慧` `AI` `AI聲紋`
 
 ## 影片
