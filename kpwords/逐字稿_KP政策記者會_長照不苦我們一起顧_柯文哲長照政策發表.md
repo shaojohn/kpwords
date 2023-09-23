@@ -1,5 +1,8 @@
 # [逐字稿] 【KP政策記者會】長照不苦 我們一起顧 | 柯文哲長照政策發表
 
+[![hackmd-github-sync-badge](https://hackmd.io/u9239jlgSeGrAcn1v1NF-g/badge)](https://hackmd.io/u9239jlgSeGrAcn1v1NF-g)
+
+
 ###### tags: `柯文哲` `柯P` `健保` `超高齡社會` `長照2.0` `長照保險局` `長照保險` `急性後期照顧` `長照3.0` `缺蛋` `內參民調`
 
 ## 影片
