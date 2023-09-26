@@ -1,5 +1,8 @@
 # [逐字稿] 確保台海穩定、兩岸和平　讓台灣遊艇繼續馳騁世界‌｜柯P來了 EP7
 
+[![hackmd-github-sync-badge](https://hackmd.io/gNT1r_BrSrSMt91Bs4sstA/badge)](https://hackmd.io/gNT1r_BrSrSMt91Bs4sstA)
+
+
 ###### tags: `柯文哲` `柯P` `缺工` `環保` `遊艇業` `少子化` `技識教育` `戰爭險`
 
 ## 影片
