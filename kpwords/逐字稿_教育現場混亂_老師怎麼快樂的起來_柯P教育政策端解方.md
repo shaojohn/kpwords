@@ -1,5 +1,8 @@
 # [逐字稿] 教育現場混亂！老師怎麼快樂的起來？柯P教育政策端解方
 
+[![hackmd-github-sync-badge](https://hackmd.io/ZKqa72-9Qfefd1zL6mweCw/badge)](https://hackmd.io/ZKqa72-9Qfefd1zL6mweCw)
+
+
 ###### tags: `柯文哲` `柯P` `教育政策` `總統政見` `義務教育` `108課綱` `雙語教育` `弱勢教育` `數位教育` `技職教育` `營養午餐專法`
 
 ## 影片
