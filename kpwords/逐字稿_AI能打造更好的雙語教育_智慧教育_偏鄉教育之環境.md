@@ -1,5 +1,8 @@
 # [逐字稿] AI能打造更好的雙語教育、智慧教育、偏鄉教育之環境，提升國民的知識水準，讓台灣成為學習型國家。
 
+[![hackmd-github-sync-badge](https://hackmd.io/U6CS5e_9T2iXKO6zIK7m7w/badge)](https://hackmd.io/U6CS5e_9T2iXKO6zIK7m7w)
+
+
 ###### tags: `柯文哲` `柯P` `AI` `雙語教育` `智慧教育` `偏鄉教育`
 
 ## 影片
