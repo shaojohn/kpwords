@@ -1,5 +1,8 @@
 # [逐字稿] 【眾青雲集造浪營】以後的事選上再說？柯文哲點出綠「腐敗思維」！ @TPP_Media
 
+[![hackmd-github-sync-badge](https://hackmd.io/4sZzpiZbSWyotWoGv25H1w/badge)](https://hackmd.io/4sZzpiZbSWyotWoGv25H1w)
+
+
 ###### tags: `柯文哲` `柯P` `藍綠` `統獨` `維持現狀` `能源政策` `政治文化` `理性務實科學` `民意專業價值` `反黑條款`
 
 ## 影片
