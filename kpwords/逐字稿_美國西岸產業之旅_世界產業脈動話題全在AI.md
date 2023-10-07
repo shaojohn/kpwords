@@ -1,5 +1,8 @@
 # [逐字稿] 世界產業脈動 話題全在AI 你要被取代 還是跟上時代？ | 美國西岸產業之旅
 
+[![hackmd-github-sync-badge](https://hackmd.io/lUp-_eWFRGeUqzqSO5SRjw/badge)](https://hackmd.io/lUp-_eWFRGeUqzqSO5SRjw)
+
+
 ###### tags: `柯文哲` `柯P` `藍白合` `簡單的人` `正常的國家` `一日雙塔` `AI`
 
 ## 影片
