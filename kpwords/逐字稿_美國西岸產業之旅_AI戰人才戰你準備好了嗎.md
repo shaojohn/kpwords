@@ -1,5 +1,8 @@
 # [逐字稿] AI戰 人才戰 你準備好了嗎？？ | 美國西岸產業之旅
 
+[![hackmd-github-sync-badge](https://hackmd.io/v4dP4FLyR86IJN8JvIoZvg/badge)](https://hackmd.io/v4dP4FLyR86IJN8JvIoZvg)
+
+
 ###### tags: `柯文哲` `柯P` `簡志宇` `矽谷` `人才` `高等教育` `國際學生` `市場改建`
 
 ## 影片
