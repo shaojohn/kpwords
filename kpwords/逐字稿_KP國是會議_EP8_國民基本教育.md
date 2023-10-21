@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP.8 國民基本教育：保障台灣民主最重要的基礎建設
 
+[![hackmd-github-sync-badge](https://hackmd.io/DuvZM3xbSze2l3crm3btBw/badge)](https://hackmd.io/DuvZM3xbSze2l3crm3btBw)
+
+
 ###### tags: `柯文哲` `柯P` `KP國是會議` `國民基本教育` `學生` `老師` `錢` `智慧教育` `數位教育` `人工智慧`
 
 ## 影片
