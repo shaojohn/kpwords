@@ -1,5 +1,8 @@
 # [逐字稿] 【KP政策記者會】「聯合政府，團結台灣」終結政治惡鬥、再造美好台灣
 
+[![hackmd-github-sync-badge](https://hackmd.io/E7i2Ck8OSNmorru4nx4dCw/badge)](https://hackmd.io/E7i2Ck8OSNmorru4nx4dCw)
+
+
 ###### tags: `柯文哲` `柯P` `記者聯訪` `聯合政府` `團結台灣` `政黨輪替` `第三波民主改革` `內閣制` `侯友宜` `政黨協商` `韓國瑜` `抹紅` `熊好券`
 
 ## 影片
