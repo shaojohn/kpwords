@@ -1,5 +1,8 @@
 # [逐字稿]【KP政策記者會】「聯合政府，團結台灣」終結政治惡鬥、再造美好台灣
 
+[![hackmd-github-sync-badge](https://hackmd.io/R30egJfMRdqx7cNzumSr8g/badge)](https://hackmd.io/R30egJfMRdqx7cNzumSr8g)
+
+
 ###### tags: `柯文哲` `柯P` `記者聯訪` `專家學者`
 
 ## 影片
