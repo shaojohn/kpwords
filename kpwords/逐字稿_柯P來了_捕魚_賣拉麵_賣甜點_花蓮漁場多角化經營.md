@@ -1,5 +1,8 @@
 # [逐字稿] 捕魚+賣拉麵+賣甜點 花蓮漁場多角化經營｜柯P來了
 
+[![hackmd-github-sync-badge](https://hackmd.io/0SLB1qqmSXK1kMPVq4qB4A/badge)](https://hackmd.io/0SLB1qqmSXK1kMPVq4qB4A)
+
+
 ###### tags: `柯文哲` `柯P` `花蓮` `定置漁業` `地方創生` `柯P來了`
 
 ## 影片
