@@ -1,5 +1,8 @@
 # [逐字稿] 搶救少子化，讓柯P當你的神隊友！
 
+[![hackmd-github-sync-badge](https://hackmd.io/TN20x7kPRq29J_3az7xxWg/badge)](https://hackmd.io/TN20x7kPRq29J_3az7xxWg)
+
+
 ###### tags: `柯文哲` `柯P` `不婚` `晚婚` `少子化` `缺工` `生育補助` `托育` `產假` 
 
 ## 影片
