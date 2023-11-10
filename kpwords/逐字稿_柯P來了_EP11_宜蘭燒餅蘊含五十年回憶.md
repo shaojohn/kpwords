@@ -1,5 +1,8 @@
 # [逐字稿] 機器取代不了的老手藝！宜蘭燒餅蘊含五十年回憶｜柯P來了 EP11
 
+[![hackmd-github-sync-badge](https://hackmd.io/N0r1x1W-SJiNYZNf1W9JzQ/badge)](https://hackmd.io/N0r1x1W-SJiNYZNf1W9JzQ)
+
+
 ###### tags: `柯文哲` `柯P` `缺工` `產業升級` `原物料上漲` `宜蘭`
 
 ## 影片
