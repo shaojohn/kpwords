@@ -1,5 +1,8 @@
 # [逐字稿] 節能加儲能 邁向低碳永續台灣｜柯P來了 台泥花蓮和平廠
 
+[![hackmd-github-sync-badge](https://hackmd.io/FCodY-KxT8aB5eO5VRxQ_w/badge)](https://hackmd.io/FCodY-KxT8aB5eO5VRxQ_w)
+
+
 ###### tags: `柯文哲` `柯P` `台泥` `淨零排碳` `循環經濟`
 
 ## 影片
