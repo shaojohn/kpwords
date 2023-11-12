@@ -1,5 +1,8 @@
 # [逐字稿] 柯文哲 高雄大學超派QA
 
+[![hackmd-github-sync-badge](https://hackmd.io/9cp-_b9OT7CnPl5hO1qKAA/badge)](https://hackmd.io/9cp-_b9OT7CnPl5hO1qKAA)
+
+
 ###### tags: `柯文哲` `柯P` `前瞻預算` `婚姻平權` `共融社會` `趙天麟` `兵役改革` `台積電` `人工智慧` `軍隊` `鄧小平` `蔣渭水` `SOP` `藍白合`
 
 ## 影片
