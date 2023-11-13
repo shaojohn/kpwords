@@ -1,5 +1,8 @@
 # [逐字稿] 蘭花園也能斜槓 溫室農場/婚宴場地/土地公廟 ｜柯P來了 EP13
 
+[![hackmd-github-sync-badge](https://hackmd.io/NIkrsPA3TtOqviWaFND28Q/badge)](https://hackmd.io/NIkrsPA3TtOqviWaFND28Q)
+
+
 ###### tags: `柯文哲` `柯P` `蘭花` `冷鏈` `農業` `竹田艦隊`
 
 ## 影片
