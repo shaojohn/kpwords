@@ -1,5 +1,8 @@
 # [逐字稿] 客家風情傘傘發光 美濃紙傘撐起文化傳承｜柯P來了EP14
 
+[![hackmd-github-sync-badge](https://hackmd.io/mFjRlRGnRf-tUV1LZfDQIA/badge)](https://hackmd.io/mFjRlRGnRf-tUV1LZfDQIA)
+
+
 ###### tags: `柯文哲` `柯P` `一庄一特色` `一庄一節慶` `美濃` `客家`
 
 ## 影片
