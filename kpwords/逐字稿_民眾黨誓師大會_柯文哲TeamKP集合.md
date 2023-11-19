@@ -1,5 +1,8 @@
 # [逐字稿] 【民眾黨誓師大會】柯文哲Team KP集合！「板橋誓師大會」義無反顧拚一次！
 
+[![hackmd-github-sync-badge](https://hackmd.io/LJezJGGQSdOrAuFmjtNnXA/badge)](https://hackmd.io/LJezJGGQSdOrAuFmjtNnXA)
+
+
 ###### tags: `柯文哲` `柯P` `TeamKP` `台灣民眾黨` 
 
 ## 影片
