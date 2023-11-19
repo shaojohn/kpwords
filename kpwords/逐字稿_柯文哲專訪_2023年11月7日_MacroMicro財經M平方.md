@@ -1,5 +1,8 @@
 # [逐字稿] 柯文哲專訪 2023年11月7日 @ MacroMicro 財經 M 平方
 
+[![hackmd-github-sync-badge](https://hackmd.io/8ewx1GbrS12F666QknIGag/badge)](https://hackmd.io/8ewx1GbrS12F666QknIGag)
+
+
 ###### tags: `柯文哲` `柯P` `SOP` `財經M平方` `經濟` `ICT` `出口貿易` `中美對抗` `東協` `CPTPP` `RCEP` `Biotech` `傳統產業升級` `少子化` `壯世代` `高房租` `高房價` `社會住宅` `租金補貼` `稅制改革` `新創產業` `專訪`
 
 ## 影片
