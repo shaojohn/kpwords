@@ -1,5 +1,8 @@
 # [逐字稿]【KP 國是會議】EP.9 智慧教育：打造台灣成為一個學習型國家
 
+[![hackmd-github-sync-badge](https://hackmd.io/IvfMQxVkQV2DzKWC5sgsDw/badge)](https://hackmd.io/IvfMQxVkQV2DzKWC5sgsDw)
+
+
 ###### tags: `柯文哲` `柯P` `國是會議` `品格教育` `社群學習` `跨域學習` `終身學習` `數位學習` `偏鄉教育`  `雙語教育`
 
 ## 影片
