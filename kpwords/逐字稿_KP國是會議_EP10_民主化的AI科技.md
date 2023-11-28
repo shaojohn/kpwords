@@ -1,5 +1,8 @@
 # [逐字稿]【KP 國是會議】EP.10：民主化的 AI 科技
 
+[![hackmd-github-sync-badge](https://hackmd.io/cgcDGxjRSZ61YzaqH049mQ/badge)](https://hackmd.io/cgcDGxjRSZ61YzaqH049mQ)
+
+
 ###### tags: `柯文哲` `柯P` `AI` `民主`
 
 ## 影片
