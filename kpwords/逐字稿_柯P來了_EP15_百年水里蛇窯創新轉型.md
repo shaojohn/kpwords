@@ -1,5 +1,8 @@
 # [逐字稿] 百年水里蛇窯創新轉型　持續發揚傳統文化技藝｜柯P來了EP15
 
+[![hackmd-github-sync-badge](https://hackmd.io/y8czV4o7Tkyi_XwitjyXug/badge)](https://hackmd.io/y8czV4o7Tkyi_XwitjyXug)
+
+
 ###### tags: `柯文哲` `柯P` `傳統產業`
 
 ## 影片
