@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP.11：國家的科技發展策略與政策
 
+[![hackmd-github-sync-badge](https://hackmd.io/Ik8UFlAoQ_eN6jrVJ6gAZw/badge)](https://hackmd.io/Ik8UFlAoQ_eN6jrVJ6gAZw)
+
+
 ###### tags: `柯文哲` `柯P` `科技發展` `預算` `ICT` `能源` `缺水`
 
 ## 影片
