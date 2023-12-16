@@ -1,5 +1,8 @@
 # [逐字稿] 【KP國是會議 】 EP.12 ：智慧政府：為什麼要打造一個智慧政府？
 
+[![hackmd-github-sync-badge](https://hackmd.io/88ehs93WTOeT5cg8nhkYXg/badge)](https://hackmd.io/88ehs93WTOeT5cg8nhkYXg)
+
+
 ###### tags: `柯文哲` `柯P` `智慧政府` `智慧國家` `ICT` `數位基礎建設`
 
 ## 影片
