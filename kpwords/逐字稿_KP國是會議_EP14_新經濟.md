@@ -1,5 +1,8 @@
 # [逐字稿] 【KP 國是會議】EP14.新經濟
 
+[![hackmd-github-sync-badge](https://hackmd.io/pnhUqDl2TneHbl3IkZpK_Q/badge)](https://hackmd.io/pnhUqDl2TneHbl3IkZpK_Q)
+
+
 ###### tags: `柯文哲` `柯P` `GDP` `高附加價值產業` `教育`
 
 ## 影片
