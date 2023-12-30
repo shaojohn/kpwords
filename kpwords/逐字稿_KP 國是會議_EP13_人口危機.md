@@ -1,5 +1,8 @@
 # [逐字稿]【KP 國是會議】EP13. 人口危機
 
+[![hackmd-github-sync-badge](https://hackmd.io/TX0Rv45STWOQuh-rBsaLew/badge)](https://hackmd.io/TX0Rv45STWOQuh-rBsaLew)
+
+
 ###### tags: `柯文哲` `柯P` `人口危機` `少子化` `不婚`
 
 ## 影片
