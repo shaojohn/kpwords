@@ -1,5 +1,8 @@
 # [逐字稿] 舞獅弄墨！探訪鹿港小鎮傳藝之美【柯P來了】
 
+[![hackmd-github-sync-badge](https://hackmd.io/7kmLmC4RTkiaGwLEOHQ8OA/badge)](https://hackmd.io/7kmLmC4RTkiaGwLEOHQ8OA)
+
+
 ###### tags: `柯文哲` `柯P` `鹿港小鎮` `傳統藝術`
 
 ## 影片
